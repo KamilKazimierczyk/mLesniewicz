@@ -1,1 +1,1 @@
-# MLeśniewiz page
+# MLeśniewicz page
